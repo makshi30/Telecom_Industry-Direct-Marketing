@@ -1,1 +1,0 @@
-# Telecom_Industry-Direct-Marketing
